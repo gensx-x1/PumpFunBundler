@@ -11,7 +11,7 @@ Below is a preview of Pumpfun Bundler in action:
 
 ## Contact
 
-For questions or support, **contact me via Telegram**: [https://t.me/Degen4000](https://t.me/Degen4000)
+To buy, **contact me via Telegram**: [https://t.me/Degen4000](https://t.me/Degen4000)
 
 ---
 **Happy Bundling!**
